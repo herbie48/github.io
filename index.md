@@ -10,3 +10,6 @@ Der einzige Mensch, der ihm Paroli bieten kann und mit ihm einigermaßen zurecht
 * herablassend
 * lernfähig
 * im Kern gutherzig 
+
+As Melvin Udall said:
+> Ihretwegen möchte ich ein besserer Mensch sein.
