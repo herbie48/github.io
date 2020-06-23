@@ -13,3 +13,5 @@ Der einzige Mensch, der ihm Paroli bieten kann und mit ihm einigermaßen zurecht
 
 As Melvin Udall said:
 > Ihretwegen möchte ich ein besserer Mensch sein.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Jack_Nicholson.0920.jpg/1024px-Jack_Nicholson.0920.jpg"/>
